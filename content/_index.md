@@ -1,0 +1,1 @@
+## To empower founders to launch and scale AI-driven ventures through clear strategy, operational excellence, and transformative leadership.
